@@ -9,6 +9,5 @@
 
 ### 📫 Connect with Me:
 - LinkedIn: [https://www.linkedin.com/in/genesis-mirth/]
-- 
 
 💻 **Current Project:** Learning the basics!
